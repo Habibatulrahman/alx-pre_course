@@ -1,1 +1,2 @@
-My first readme
+MAnuted no bastard 
+
